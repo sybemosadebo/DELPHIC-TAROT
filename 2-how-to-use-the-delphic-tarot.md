@@ -1,3 +1,5 @@
+HOW TO USE THE DELPHIC TAROT
+
 The Delphic Tarot can be used in various ways, depending on your intent and the depth you wish to explore.
 
 ---
